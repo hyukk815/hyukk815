@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hyukk815
-- 👀 I’m interested in Dragon
+- 👀 I’m interested in  ArT/Dragon
 - 🌱 I’m currently learning AR/VR/MR/XR
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
